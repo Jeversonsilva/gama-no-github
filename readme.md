@@ -1,1 +1,0 @@
-O curso até o momento está sendo muito interessante.
